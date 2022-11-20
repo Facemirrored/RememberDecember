@@ -5,6 +5,10 @@ challenge will be described in detail with a given reason why I have chosen thos
 
 - [ ] No Alcohol! ✋🍷🛑
 - [ ] Sport - Six times a week! 🏃
+- [ ] Regeneration and Mental health 🕯️
+- [ ] Diet 🍲
+- [ ] Have fun - respect yourself! 🙏🏽
+
 
 ---
 ---

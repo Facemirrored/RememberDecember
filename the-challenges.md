@@ -126,7 +126,7 @@ Just don't use this shit, delete it and use it maybe once a week if u just want 
 
 ## 4. Diet 🍲
 
-Short and logical:
+This one should almost be self explained:
 
 - Between the 21.11.2022 and the 21.12.2022 I will focus on a healthy diet which won't be fast food, self cooked and
   good for my athletic goals which will be combined with healthy fasting times mixed from daily fasting to prolonged

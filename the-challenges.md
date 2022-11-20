@@ -117,7 +117,23 @@ all the things you don't have because your 'friends' have such a better life lik
 
 Just don't use this shit, delete it and use it maybe once a week if u just want to check messages from people.
 
-## 4. ...
+---
+---
+
+## 4. Diet 🍲
+
+Short and logical:
+
+- Between the 21.11.2022 and the 21.12.2022 I will focus on a healthy diet which won't be fast food, self cooked and
+  good for my athletic goals which will be combined with healthy fasting times mixed from daily fasting to prolonged
+  fasting. In addition, this diet will be fully vegetarian and the only non-vegan products are high quality biological
+  produced products.
+
+---
+
+Diet is as important as sport itself. Your body needs to get the resources and off time it deserves. Fasting helps your
+body to relax and strengthening its cells and immune system. Healthy food helps the body to build muscles and
+functioning mechanism. So in the end both is important.
 
 ## 5. ...
 

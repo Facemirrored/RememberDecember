@@ -143,7 +143,7 @@ functioning mechanism. So in the end both is important.
 
 Last but not least one almost as important as all other challenges:
 
-- Between the 21.11.2022 and the 21.12.2022 I will respect myself with all my decisions no matter what outcome this
+- Between the 21.11.2022 and the 21.12.2022 I will respect myself with all my decisions no matter what outcome from this
   project will come. I will love myself and be happy and proud of all the things I do. I will not myself get pulled down
   by other hate, negative emotions or actions which makes me uncomfortable.
 
@@ -152,5 +152,3 @@ Last but not least one almost as important as all other challenges:
 This one is a good one! Why? Because I know me. I know that I am letting myself hanging sometimes and get in a really
 sad mood due others actions. I don't have to explain these, because that doesn't matter. What matters is how I deal with
 it. And this is why I want to focus myself on my happiness, my gratitude and my kind-fullness.
-
-TODO: task bold and in pretty div and blocksatz

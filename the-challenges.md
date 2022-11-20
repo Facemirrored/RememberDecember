@@ -82,7 +82,7 @@ So how could a week look like if my muscles are able to do regenerate enough bet
 Short and simple:
 
 - Between the 21.11.2022 and the 21.12.2022 I will focus on my regeneration and mental health. This includes daily
-  stretching/coordinate-training, breath-meditation, supplements intake and social detoxing.
+  stretching/coordinate-training, breath-meditation, supplements intake and social media detoxing.
 
 ---
 

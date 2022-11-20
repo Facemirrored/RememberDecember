@@ -70,8 +70,55 @@ So how could a week look like if my muscles are able to do regenerate enough bet
 <li>Rest day</li>
 </ol>
 
-## 3. ...
+---
+---
+
+## 3. Regeneration and Mental health 🕯️
+
+Short and simple:
+
+- Between the 21.11.2022 and the 21.12.2022 I will focus on my regeneration and mental health. This includes daily
+  stretching/coordinate-training, breath-meditation, supplements intake and social detoxing.
+
+---
+
+#### Stretching/Coordinate-Training
+
+Through my running training I have recognized that a part of my hip which is connected to my left thigh has some
+problems. Intense workouts creating a blockage in this centered point which is in the depth of the joint. How can I fix
+this? Stretching, stretching and stretching...and some coordination training! 20 Minutes a day should do it.
+
+I will combine a set of varying exercises from my marathon-book and yoga-routines.
+
+#### Breath-Meditation
+
+CO2 capacity and the way I breathe is important for the health and as hobby athlete. So my goal here is to do every day
+a wim hof [breathing exercise](https://www.youtube.com/watch?v=tybOi4hjZFQ). This helps me to relax myself and my
+thoughts and maximize my CO2 capacity and efficiency.
+
+#### Supplements
+
+Really simple: take my pills! lol
+
+<ul>
+<li>Vitamin B-Complex for nervous-system and concentration</li>
+<li>Magnesium/Zinc Complex for muscle regeneration</li>
+<li>Omega-3 for Omega-3/Omega-6 balance</li>
+<li>'Heilerde' for better digestive-system</li>
+<li>MAP Protein for muscle regeneration and build up</li>
+</ul>
+
+#### Social-Detoxing
+
+This is a bad one! This kind of addiction is almost I would say dangerous. Check 1000 times your phone, your messages,
+your instagram feed, stories from your 100. of 'friends', watching between every free minute a video or short on YouTube
+and co. If you don't pay attention you get lost in it and will feel empty or bad for all the cool things you miss and
+all the things you don't have because your 'friends' have such a better life like u seeing it on Instagram and co.
+
+Just don't use this shit, delete it and use it maybe once a week if u just want to check messages from people.
 
 ## 4. ...
 
 ## 5. ...
+
+TODO: task bold and in pretty div and blocksatz

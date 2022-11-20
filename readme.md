@@ -1,7 +1,7 @@
 # Welcome to Remember-December! 😊
 
-This project is for personal purpose only. It is my goal first to document my challenge-goals which I will focus on
-completion. This challenge is starting from the 21. November and will be ending at the 21. December.
+This project is for personal purpose only. It is my goal to document my challenge-goals which I will focus on
+completion the following 30 days. This challenge is starting from the 21. November and will be ending at the 21. December.
 
 ## What specific Goals/Challenges? 💪
 
